@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LOVESPELLCASTER2
-- 👀 I’m interested in love spell castig
+- 👀 I’m interested in love spell casting
 - 🌱 I’m currently one of best psychic reader 
 - 💞️ I’m looking to collaborate on best astrologers around the world
 - 📫 How to reach me +211920203749
